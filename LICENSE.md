@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://gammaengineerradial.github.io/pixelle-video-ai-wz73/ ) |
  |---------------------|----------------------:|
 
 
